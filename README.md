@@ -1,1 +1,1 @@
-# Trick!
+# Welcome to Trick!
